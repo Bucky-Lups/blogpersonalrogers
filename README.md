@@ -1,0 +1,2 @@
+# blogpersonalrogers
+Mi Blog 
